@@ -1,3 +1,3 @@
-<img width="400" height="300" alt="gif" src="file:///D:/скачанное/fdwizbfsco.gif" />
+<img width="400" height="300" alt="gif" src="https://i.pinimg.com/originals/92/19/3d/92193d7774745317e59cf09953f0d96c.gif" />
 
 ### ‧͙⁺˚*･༓☾　　☽༓･*˚⁺‧͙ ‧͙⁺˚*･༓☾　　☽༓･*˚⁺‧͙ ‧͙⁺˚*･༓☾　　☽༓･*˚⁺‧͙ ‧͙⁺˚*･༓☾　　☽༓･*˚⁺‧͙ ‧͙⁺˚*･༓☾　　☽༓･*˚⁺‧͙ ‧͙⁺˚*･༓☾　　☽༓･*˚⁺‧͙  
