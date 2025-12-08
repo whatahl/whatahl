@@ -7,4 +7,4 @@
 ##  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝘊𝘶𝘵 𝘮𝘺 𝘩𝘢𝘪𝘳 𝘢𝘯𝘥 𝘵𝘩𝘦𝘯 𝘐 𝘤𝘶𝘵 𝘮𝘺 𝘴𝘬𝘪𝘯.
 ##  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝘏𝘶𝘳𝘵 𝘮𝘺𝘴𝘦𝘭𝘧 𝘪𝘯𝘴𝘵𝘦𝘢𝘥 𝘰𝘧 𝘩𝘶𝘳𝘵𝘪𝘯𝘨 𝘩𝘪𝘮
 ##  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝘍𝘦𝘦𝘭𝘴 𝘭𝘪𝘬𝘦 𝘪𝘵'𝘴 𝘢 𝘯𝘪𝘨𝘩𝘵𝘮𝘢𝘳𝘦 𝘐'𝘮 𝘪𝘯.
-<img width="800" height="800" alt="gif" src="https://i.pinimg.com/originals/04/21/ca/0421cabd4a004007b3b3b754251e1a2f.gif" />
+<img width="1000" height="600" alt="gif" src="https://i.pinimg.com/originals/04/21/ca/0421cabd4a004007b3b3b754251e1a2f.gif" />
