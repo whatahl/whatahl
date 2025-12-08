@@ -10,5 +10,5 @@
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="210" height="200" alt="gif" src="https://i.pinimg.com/originals/cd/4a/dd/cd4addb03dbfb01b2fe3072990e42ea6.gif" />
 <img width="800" height="500" alt="gif" src="https://i.pinimg.com/originals/04/21/ca/0421cabd4a004007b3b3b754251e1a2f.gif" />
 <img width="800" height="500" alt="gif" src="https://i.pinimg.com/originals/4f/e8/41/4fe8411e8eb920e6345648262bbca930.gif" />
-ㅤ### Truly love you endlessly. Every day without you is like a book without pages. I love you, I will always do, for the rest of our earthly and heavenly life.
+### 𝘛𝘳𝘶𝘭𝘺 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘦𝘯𝘥𝘭𝘦𝘴𝘴𝘭𝘺. 𝘌𝘷𝘦𝘳𝘺 𝘥𝘢𝘺 𝘸𝘪𝘵𝘩𝘰𝘶𝘵 𝘺𝘰𝘶 𝘪𝘴 𝘭𝘪𝘬𝘦 𝘢 𝘣𝘰𝘰𝘬 𝘸𝘪𝘵𝘩𝘰𝘶𝘵 𝘱𝘢𝘨𝘦𝘴. 𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶, 𝘐 𝘸𝘪𝘭𝘭 𝘢𝘭𝘸𝘢𝘺𝘴 𝘥𝘰, 𝘧𝘰𝘳 𝘵𝘩𝘦 𝘳𝘦𝘴𝘵 𝘰𝘧 𝘰𝘶𝘳 𝘦𝘢𝘳𝘵𝘩𝘭𝘺 𝘢𝘯𝘥 𝘩𝘦𝘢𝘷𝘦𝘯𝘭𝘺 𝘭𝘪𝘧𝘦.
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="800" height="400" alt="gif" src="https://i.pinimg.com/originals/cf/ce/ce/cfcece4e9f83060bea1d7c460c7cd02b.gif" />
