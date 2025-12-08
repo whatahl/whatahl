@@ -2,5 +2,5 @@
 
 ### ✧`〟↘︎ 𝓹𝓼𝓮𝓾𝓭𝓸𝓷𝔂𝓶 -- 𝔀𝓱𝓪𝓽𝓪𝓱𝓵 
 
-<img width="500" height="500" alt="gif" src="https://i.pinimg.com/originals/63/6c/b0/636cb0e4615d23da434ed475ac882740.gif" />
+<img width="400" height="500" alt="gif" src="https://i.pinimg.com/originals/63/6c/b0/636cb0e4615d23da434ed475ac882740.gif" />
 ## : ̗̀➛ 13 𝔂.𝓸 , 𝓈𝒽𝑒/𝒽𝑒𝓇 !! *ೃ༄
